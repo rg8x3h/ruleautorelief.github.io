@@ -1,1 +1,1 @@
-# ruleautorelief.github.io
+# https://rg8x3h.github.io/http-ruleautorelief.github.io-/
